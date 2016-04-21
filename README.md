@@ -1,1 +1,1 @@
-# Nice Signatures is closed.
+Nice Signatures is closed.
