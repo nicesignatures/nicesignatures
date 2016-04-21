@@ -1,2 +1,1 @@
-# nicesignatures
-Nice Signatures
+# Nice Signatures is closed.
